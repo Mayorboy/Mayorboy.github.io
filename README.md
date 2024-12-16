@@ -1,3 +1,3 @@
 # Mayorboy.github.io
 
-## My journey
+# about me

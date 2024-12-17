@@ -3,6 +3,8 @@ I guess you are curious about me, I´m just a 90s child. I love to play and have
 
 
 ## education
+Bsc in Geology - University of Lagos
+Msc in Marine Geology and Geophysics- UiT The Arctic University of Norway.
 
 
 

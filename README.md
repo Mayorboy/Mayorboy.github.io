@@ -14,9 +14,9 @@ So good luck keeping up with me! 😂 Life is an exhilarating journey, and I’m
 
 
 ### Education
-Bsc in Geology - University of Lagos
+- BSc in Geology - University of Lagos
 
-Msc in Marine Geology and Geophysics - UiT The Arctic University of Norway.
+- MSc in Marine Geology and Geophysics - UiT The Arctic University of Norway.
 
 
 

@@ -14,11 +14,11 @@ So good luck keeping up with me! 😂 Life is an exhilarating journey, and I’m
 
 
 ### Education
-- Diploma in Geology - University of Lagos. 2012-2013
+- Diploma in Geology - University of Lagos (2012-2013)
   
-- BSc in Geology - University of Lagos.  2013-2017
+- BSc in Geology - University of Lagos  (2013-2017)
 
-- MSc in Marine Geology and Geophysics - UiT The Arctic University of Norway. 2022-2024
+- MSc in Marine Geology and Geophysics - UiT The Arctic University of Norway (2022-2024)
 
 
 
